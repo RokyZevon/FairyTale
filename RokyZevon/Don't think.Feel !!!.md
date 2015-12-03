@@ -140,7 +140,7 @@
   
 > 原：いつだってDon't think.　Feel !!!
 
-  翻：Welcome to the Fairy Tale!!!
+  翻：
   
 > 原：走り出せ!!!
 
