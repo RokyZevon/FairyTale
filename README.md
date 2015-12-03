@@ -1,2 +1,1 @@
-# FairyTale
-FairyTale
+* 「绯莲之音」的工作间
